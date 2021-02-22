@@ -1,2 +1,3 @@
 # hello-world
 Probably one of many...
+I'm an individual who continues to learn, grow, change directions, and make waves because complacency and stagnancy are unproductive.  There's always a need to do more... and I seem to gravitate to the "more."
